@@ -1,1 +1,1 @@
-# dekopinda-kota-palembang
+# dekopinda-karanganyar
